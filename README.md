@@ -1,3 +1,2 @@
-
-![image](https://github.com/home-gihub/dOmut/assets/124263428/3d440f43-cdcb-42ef-85da-69fc5b415c24)
+ ![image (1)](https://github.com/home-gihub/dOmut/assets/124263428/775d2669-d8e0-40ab-9b5b-eb22ba098fc0)
 # dOmut
